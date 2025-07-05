@@ -12,5 +12,5 @@ Die Darstellung meiner Motivation die Doktorwürde zu erlangen ist vielschichtig
 2.  Persönlichkeitsnentwicklung
 Zum Zeitpunkt der Erstellung dieser Zeilen fühle ich mich, im Gegensatz zu weiten Teilen meines bis dahin 56 Jahre andauernden Lebens, erwachsen. Warum ist dies so ? Nun zum Einen beschäftige ich mich mit Sachverhalten, mit denen sich typischerweise ein Erwachsener beschöftigt, als da wären Karriereentwicklung im Untenehmen und auf der wissenschaftlichen Bühne, Aufbau einer stabilen Partnerschaft, Erwerb einer (teilweise) selbstgenutzten Immobilie, inklusvie aller Unterpunkte wie Kreditwesen, Risikomanagement, (Um-bauplanung und Durchführung,Beschöftigung mit dem eigenen Kind und dem Nachwuchs meineer Lebensgefährtin, Lehrtätigkeit, Gründung eines Unternehmens.
 
-Es mag nun der Gedanke entstehen, warum sich der Autor unte diesen Uständen noch ein weitees Projekt aufbürdet.  
+Es mag nun der Gedanke entstehen, warum sich der Autor unter diesen Uständen noch ein weitees Projekt aufbürdet. Zum einen soll sie als Spielplatz "Playground" für die im Rahmen eines Selbstversuches behandelte Unfähigkeit der Fokussierung auf Einzelheiten zu behandeln und die in vielen Bereichen anwendbare Fähigkeiet des adäquaten ZUeitmanagements zu steigern.  
 
